@@ -5,7 +5,7 @@ This project is related towards to the Glorious Revelation
 
 What the Glorious Revelation Is
 
-Divine Communication
+Divine Communication : Messiah and Prohphets which was came and given as it is .
 
 GR is God’s direct Word to humanity, delivered through (Messiah & prophets) (Sir Jesus, Sir Muhammad) or inspired scriptures.
 
