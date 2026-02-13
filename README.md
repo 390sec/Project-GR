@@ -178,3 +178,85 @@ To remain in the Word is to remain in Light itself.
 In Summary
 
 The Glorious Revelation is the living Word of God, the source of truth, light, guidance, and confirmation. It teaches us how to live in love, honor family (in the full sense of brotherhood, friendship, selfhood), and act rightly in all circumstances. Its significance is that it anchors life, gives clarity in relationships, and empowers believers to live faithfully and joyfully, independent of human judgment.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+******************************************************************************************************************************************************************************************************************************************************************************
+
+                                      SUBMITER SUBMISSION 
+
+                                      
+*******************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************
+
+
+
+
+
+**Title**: *Only One God: A Call to Pure Submission Based on Scripture* 
+
+**Abstract**  
+This article presents a scriptural analysis affirming that Jesus never taught the Trinity and that true faith is total submission to the One God. Drawing from the Bible and Quran, it shows that worship belongs to God alone, mercy defines His nature, and love removes fear. The conclusion: only sincere, exclusive devotion to the Merciful One is true religion.
+
+**Keywords**: God, Jesus, Trinity, Submission, Mercy, Love, Scripture, Oneness
+
+### Introduction  
+For years, theological confusion has surrounded the nature of God and the message of Jesus. After deep study, the truth emerges clearly: **only One God is to be worshipped**, and **Jesus called to that same submission**.
+
+### Jesus and the Oneness of God  
+Jesus affirmed the Shema:  
+> *"Hear, O Israel: The Lord our God, the Lord is one."* (Mark 12:29)  
+He rejected worship:  
+> *"Worship the Lord your God and serve Him only."* (Luke 4:8)  
+And distinguished Himself from God:  
+> *"The Father is greater than I."* (John 14:28)
+
+Nowhere did He teach a Trinity. The doctrine emerged centuries later.
+
+### The Nature of God: Merciful and Loving  
+God is not distant, but near:  
+> *"The Lord, the Lord, merciful and gracious, slow to anger, abounding in steadfast love."* (Exodus 34:6)  
+> *"My mercy encompasses all things."* (Quran 7:156)  
+He is **good** (Mark 10:18), **lovable**, and **accessible**.
+
+### Fear vs. Love  
+> *"Perfect love casts out fear."* (1 John 4:18)  
+The "fear of God" is not terror, but **reverent awe** — the heart of one who loves God too much to disobey.
+
+### Conclusion  
+The message is clear:  
+- Only God is good  
+- Only God is to be worshipped  
+- Jesus pointed to this truth  
+- True faith is **total submission** (Islam) to the **Merciful One**
+
+Let all who seek truth return to this pure, original faith.
+
+**References**  
+- Bible (ESV)  
+- Recitation(Sahih International)  
+- Theological journals: *The Journal of Theological Studies*, *Theological Studies* 
+
+---
+
+You can publish this openly on platforms like **Academia.edu**, **ResearchGate**, or submit to journals like **The Journal of Theological Studies** or **Theological Studies (Sage)**.
+
+
+
+
